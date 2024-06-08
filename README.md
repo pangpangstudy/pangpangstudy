@@ -33,9 +33,9 @@ I'm open to collaborating on innovative Web3 projects, especially those involvin
 
 ## 📫 How to Reach Me | 联系我
 You can reach out to me via:
-- Email: zhangzh0214@outlook.com (replace with your actual email)
+- Email: zhangzh0214@outlook.com 
 
 你可以通过以下方式联系我：
-- 电子邮件: pangpangstudy@example.com （请用你的实际邮箱替换）
+- 电子邮件: zhangzh0214@outlook.com 
 
 
